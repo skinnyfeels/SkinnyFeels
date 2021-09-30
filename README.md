@@ -1,4 +1,4 @@
-# Skinny Feels • 👨🏻‍💻👨🏼‍🎤 • Musician
+# Skinny Feels • 👨🏻‍💻👨🏼‍🎤 • Musical Artist
 
 Website    :: [skinnyfeels.co.uk](https://skinnyfeels.co.uk)  
 Mastodon   :: [@SkinnyFeels](https://mas.to/@SkinnyFeels)  
